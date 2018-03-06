@@ -1,1 +1,1 @@
-Mecsek Alpin Team Freelance Projekt [Weboldal Link]https://mecsekalpinteam.hu
+Mecsek Alpin Team Freelance Projekt https://mecsekalpinteam.hu
